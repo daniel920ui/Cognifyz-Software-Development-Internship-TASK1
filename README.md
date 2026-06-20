@@ -1,1 +1,0 @@
-# Cognifyz-Software-Development-Internship-TASK1
